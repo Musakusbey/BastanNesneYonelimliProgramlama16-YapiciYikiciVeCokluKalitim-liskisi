@@ -1,0 +1,2 @@
+# BastanNesneYonelimliProgramlama16-YapiciYikiciVeCokluKalitim-liskisi
+BastanNesneYonelimliProgramlama16-YapiciYikiciVeCokluKalitimİliskisi
